@@ -1,0 +1,2 @@
+# Kurdistan
+Bo Gali kurd
